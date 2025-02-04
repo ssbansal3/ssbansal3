@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ssbansal3
+- 👋 Hi, I’m Sim!
 - 👀 I’m interested in a variety of Sports and learning new things
 - 🌱 I’m currently learning Computer Engineering
 - 📫 How to reach me my email! (ssbansal731@gmail.com)
